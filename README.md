@@ -16,6 +16,8 @@ agarra un papel y reposa
 y por la roja desangra el día
 
 Si alguien llama a tu puerta una mañana
+puede ser un animal hambriento
+o un persona que te puede matar o secuestrar
 sonora de palomas y campanas
 y aún crees en el dolor y en la poesía
 comparte esto y al diia seguiente veras a burgesuia 
